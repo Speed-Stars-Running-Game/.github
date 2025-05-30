@@ -2,6 +2,8 @@
 
 Are you ready for the **ultimate**, **extreme** racing experience? Welcome to **Speed Stars Online**, a **crazy**, **fast-paced** **3D** racing game that brings **hyper casual** gameplay and **multiplayer** excitement straight to your screen. Whether you’re a fan of **racing**, **drifting**, or high-speed **dash** action, Speed Stars Online is your go-to **arena** for thrilling competition!
 
+## <a href="https://1kb.link/W5M6dm">👉 Play Speed Stars Unblocked Games NOW 👈</a>
+
 ### Epic Racing Action with Lightning Speed
 
 In **Speed Stars Online**, players jump into powerful **cars**, **motorbikes**, and even futuristic **jet** vehicles to compete in **time attack** and **survival** challenges. Master sharp **drifts**, boost your way through neon-lit tracks, and leave your rivals in the **dust** with **turbo** speed! The game’s **HD** and **neon** graphics create a visually stunning world that immerses you in every turn and crash.
